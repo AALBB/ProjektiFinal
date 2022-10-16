@@ -1,0 +1,2 @@
+# ProjektiFinal
+Projekti i Albit
